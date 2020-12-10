@@ -63,5 +63,6 @@ stop, stop all music.
 
 ### 🛠️ Support
 
-You Can Find Me In [Mifed Codes](https://discord.gg/U2aSYFksYN(
+You Can Find Me In [Mifed Codes](https://discord.gg/U2aSYFksYN)
+
 You Can Call Me In Discord : @ニロ#٣٨٩٢ 
